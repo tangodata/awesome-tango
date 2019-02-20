@@ -1,5 +1,6 @@
-# awesome-tango
-An awesome List of Tango links
+# An awesome List of Tango links
+Since many of the tango directories available online are obsolete, we compile yet another list ...
+but hopefully this will be more current (2018)
 
 ## LOCAL
 
