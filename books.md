@@ -43,3 +43,61 @@ Some texts are complete, others aren't - but there's a wealth of good reading to
 [Tango in Translation: Tanz zwischen Medien, Kulturen, Kunst und Politik](http://books.google.com/books?id=6VodutecZ48C&lpg=PA62&dq=%22milonguero%22&lr&pg=PA4#v=onepage&q&f=false) By Gabriele Klein (Hg.) (2009)  
   
 [Whiny Ruffians and Rebellious Broads: Tango as a Spectacle of Eroticized Social Tension](http://www.jstor.org/stable/3208807?cookieSet=1) -- Marta E. Savigliano, Theatre Journal, Vol. 47, No. 1 (Mar., 1995), pp. 83-104. Published by: The Johns Hopkins University Press
+
+[A Passion for Tango](http://www.amazon.co.uk/Passion-Tango-Thoughtful-Provocative-Universal/dp/095470830X)
+
+Just finished Long After Midnight at the Nino Bien by Brian Winters.
+
+Good in some ways, not in others. I found it good for instance on the politics of the period (2000-4). Not so good on his descriptions of the milongueros or his dance lessons. He couldnt have been that bad a dancer after spending several months at the milongas.
+
+You'll be pleased to know OD that he advocates the African origins of the tango. :)
+
+Bad Times in Buenos Aires by Miranda France is an eye-opener. Not much to do with tango but a view of a city desperatley in need of psycho-analysis. Some of it is tragic and brutal; "the disappeared". some of it is funny; the phone exchange which seems to be quite random about who will receive your call. very readable
+
+
+[Kiss and Tango: Looking for love in Buenos Aires](http://www.amazon.com/gp/product/B000EMSZBU/ref=s9_simh_gw_p14_i1?pf_rd_m=ATVPDKIKX0DER&pf_rd_s=center-2&pf_rd_r=1NAE31M4K54VSHS888RQ&pf_rd_t=101&pf_rd_p=470938631&pf_rd_i=507846)
+
+**Re: books update**  
+  
+May I add  
+  
+Sheila Walker [African Roots - American Culture](http://books.google.com/books?id=EJzHiqBPJCoC&printsec=frontcover&hl=de&source=gbs_navlinks_s#v=onepage&q&f=false)  
+  
+and  
+  
+Thomas Rasche [Argentine Tango - Class Companion](http://books.google.com/books?id=3Tl43NRtmrIC&pg=PT18&dq=tango+history&lr=&hl=de&cd=17#v=onepage&q&f=false)
+
+Could add _[The Meaning of Tango](http://www.amazon.com/Meaning-Tango-Story-Argentinian-Dance/dp/1906032165/ref=sr_1_1?ie=UTF8&s=books&qid=1276570883&sr=1-1)_, by Christine Denniston.  
+  
+Mkjohnson, I wonder if you deliberately left certain books off your list. I'd be curious to know which ones and why (would love to hear from anyone really), but of course don't feel obligated to respond. This is a great list though, and I am amazed that there are a few on here I've never heard of. (P.S. I love the scholarly stuff too!)  
+  
+I agree with CaptainJep's impressions of _Long After Midnight at the Nino Bien_...
+
+http://www.dance-forums.com/showthread.php?t=31329
+ 
+ 
+You can also check on Gustavo Benzecry Saba's:
+"New Glossary of Tango Dance" and
+"Embracing Tango, techniques and metaphors between Tango and life".
+ 
+"Tango Passion and the rules of the game" by Margareta Westergård deals with the rules that surround tango, including those outside Buenos Aires.
+
+Has anyone read this: http://inasearchofthemethodthatneverexisted.blogspot.com/ ? It sounds interesting, but I fear it might be heavy going.
+
+The Tao of Tango by Johanna Siegmann
+
+Just finished this new one:
+"Tango Intoxication" - Batt Johnson
+
+"Tango Stories: Musical Secrets"
+"Tango Masters: Anibal Troilo"
+"Tango Masters: Osvaldo Pugliese"
+
+All by Michael Lavocah
+
+Also "Enjoy Getting the Dances you Want" by Oliver Kent
+
+
+I read Yo quería bailar by Plazaola, long ago. There must be an american translation, as the original poster list seems to mainly include books in english.
+ 
+
